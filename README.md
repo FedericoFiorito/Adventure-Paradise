@@ -4,5 +4,3 @@
  If you want to play the game in your browser, here is the link:
  
  https://fefefiorito.itch.io/adventure-paradise
- https://fefefiorito.itch.io/adventure-paradise
- https://fefefiorito.itch.io/adventure-paradise
